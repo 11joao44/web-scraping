@@ -2,4 +2,4 @@
 
 ## 100 Melhores series 
 
-- João Pedro Inacio Ferreira
+- Autor: João Ferreira
